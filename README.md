@@ -1,2 +1,2 @@
-# prakh97ar.github.io
+# prrai.github.io
 Prakhar's Portfolio
